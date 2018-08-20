@@ -1,2 +1,7 @@
 # hello-world
-Just another repository
+
+what supp boy!
+
+nobbody gives a shit!
+
+who cares!
